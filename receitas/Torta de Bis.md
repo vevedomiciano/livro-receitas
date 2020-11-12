@@ -1,4 +1,4 @@
-# Torta de Bis
+# Torta de Bis :chocolate_bar:
 
 ### Ingredientes
 
